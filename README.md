@@ -1,4 +1,4 @@
-# Hi there 👋:
+# Hi there 👋
 - 🦋 My name is Diya.
 - ⚡ Fun fact: I have a knack for psychological therapy and love helping others navigate their mental well-being! 🧠✨.
 

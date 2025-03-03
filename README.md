@@ -1,4 +1,7 @@
-## Hi there 👋
+# Hi there 👋:
+- 🦋 My name is Diya.
+- ⚡ Fun fact: I have a knack for psychological therapy and love helping others navigate their mental well-being! 🧠✨.
+
 
 <!--
 **speco29/speco29** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

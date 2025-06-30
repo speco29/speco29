@@ -2,7 +2,7 @@
 
 # Hi there 👋  
 - 🦋 My name is Diya.  
-- ⚡ Fun fact: I have a knack for psychological therapy and love helping others navigate their mental well-being! 🧠✨   
+- ⚡ Fun fact: I have a knack for psychological therapy and love helping others navigate their mental well-being! 🧠✨    
 - 📫 How to reach me: sdiya5556@gmail.com.            
               
     

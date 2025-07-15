@@ -6,7 +6,7 @@
 - 📫 How to reach me: sdiya5556@gmail.com.               
                 
      
- 
+  
 <!--
 **speco29/speco29** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

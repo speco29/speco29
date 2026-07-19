@@ -2,7 +2,7 @@
        
 # Hellaw 👋           
 - 🦋 My name is Diya.                 
-- 📫 How to reach me: sdiya5556@gmail.com.                    
+- 📫 How to reach me: sdiya5556@gmail.com.                     
                       
       
   
